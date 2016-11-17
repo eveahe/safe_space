@@ -1,2 +1,2 @@
 # safe_space
-just a lil place
+Nothing in here and that's point. Keeping all my secrets to myself.
